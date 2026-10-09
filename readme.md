@@ -1,0 +1,2 @@
+suxooooo manjalishvili oooooo
+jemali xaxutaishvili
